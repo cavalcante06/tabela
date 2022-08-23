@@ -1,2 +1,2 @@
 # tabela
- grupo G da copa 2022
+ Grupo G da copa do mundo de 2022
